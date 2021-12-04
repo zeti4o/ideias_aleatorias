@@ -1,0 +1,2 @@
+# ideias_aleatorias
+ 
